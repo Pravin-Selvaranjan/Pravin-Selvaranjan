@@ -1,6 +1,6 @@
 # Welcome! I'm Pravin, a budding DevOps Engineer from the UK 😃
 
-## Currently transitioning from a career in Policing to one in the cloud ☁️
+## Currently transitioning from a career in Policing to one in the Cloud ☁️
 
 - Upskilling in pretty much every aspect possible (technically speaking) 💪
 - I love food, Movies, and picking up hobbies that are far too difficult for my mental capacity 🫠
