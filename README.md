@@ -3,7 +3,7 @@
 ## Currently transitioning from a career in Policing to one in the cloud ☁️
 
 - Upskilling in pretty much every aspect possible (technically speaking) 💪
-- I love food, Movies, and picking up hobbies that are far too difficult for my mental capacity
+- I love food, Movies, and picking up hobbies that are far too difficult for my mental capacity 🫠
 - Remember, God loves a trier 💀
 
 
